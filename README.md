@@ -1,2 +1,2 @@
 # Hi-Crispia-
-https://static.wikia.nocookie.net/cookierunkingdom/images/b/b7/Milk_illustration.png/revision/latest?cb=20211105084637
+<img width="225" height="225" alt="image" src="https://github.com/user-attachments/assets/a4ce729c-cd63-453d-a68b-741199bf7819" />
